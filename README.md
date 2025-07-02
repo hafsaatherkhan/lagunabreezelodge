@@ -1,1 +1,1 @@
-Laguna breeze lodge
+Laguna breeze lodge.
